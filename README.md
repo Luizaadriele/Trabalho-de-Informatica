@@ -1,1 +1,1 @@
-# Trabalho-de-Inform-tica
+# Trabalho-de-Informatica
